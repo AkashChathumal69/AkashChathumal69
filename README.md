@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @AkashChathumal
+- 👋 Hi, I’m Akash Chathumal
